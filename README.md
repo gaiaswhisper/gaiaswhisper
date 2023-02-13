@@ -1,6 +1,7 @@
 - 🌎 Hello! I’m Terra @ Gaiaswhisper! 
 - 🛸 I’m helping wake starseeds up to their multidimensionality!
 - 👽 Send me a message: terra@gaiaswhisper.com
+- 📅 [Book a Healing Session](https://cal.com/gaiaswhisper)
 
 <!---
 gaiaswhisper/gaiaswhisper is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
