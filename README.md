@@ -1,7 +1,7 @@
-- 🌎 Hello! I’m Prima @ Gaiaswhisper! 
-- 🛸 I’m helping wake starseeds up to their multidimensionality!
-- 👽 Send me a message: terra@gaiaswhisper.com
-- 🔗 View my [website](https://gaiaswhisper.com) to learn more about me
+- 🌎 Hello! I’m Prima (Elizabeth Terra) @ Gaiaswhisper! 
+- 🛸 I’m helping wake starseeds up to their multidimensionality.
+- 👽 Contact me at: terra@gaiaswhisper.com
+- 🔗 View my [website](https://gaiaswhisper.com) to learn more about me.
 - 📅 [Book a Healing Session](https://cal.com/gaiaswhisper)
 
 <!---
